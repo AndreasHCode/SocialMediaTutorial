@@ -1,0 +1,1 @@
+Offer was deleted;
